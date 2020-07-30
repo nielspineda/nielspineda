@@ -1,4 +1,4 @@
-## Who are you stuck listening to today?
+## 👈  Who is that guy?
 
 ### A passion of mine: 
 ![213Hoops](https://github.com/nielspineda/nielspineda/blob/master/Photos/213HoopsR_B.png)
