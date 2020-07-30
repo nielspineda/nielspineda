@@ -1,4 +1,5 @@
-## ![Who](https://github.com/nielspineda/nielspineda/blob/master/Photos/WhoIsThat.jpg) Who is that guy?
+## ![Who](https://github.com/nielspineda/nielspineda/blob/master/Photos/WhoIsThat.jpg) 
+## Who is that guy?
 
 ### A passion of mine: 
 ![213Hoops](https://github.com/nielspineda/nielspineda/blob/master/Photos/213HoopsR_B.png)
